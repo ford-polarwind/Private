@@ -11,12 +11,12 @@ De liturgische activiteiten in de parochie vinden, zoals voorheen, maandelijks p
 
 Dankzij de inspanningen van goede mensen en de genade van God kunnen we met trots zeggen dat de parochie aanzienlijke vooruitgang heeft geboekt het afgelopen jaar:
 
-•	Er is een nieuw kerkelijk bestuur gekozen;
-•	Het buitenschrijnwerk is opnieuw geverfd;
-•	Er zijn onderzoeken en werkzaamheden uitgevoerd om het fundament van het kerkgebouw te stabiliseren;
-•	Het priesterlijk verblijf is gerealiseerd;
-•	Er is een parochiale website en sociale media opgezet;
-•	Alle noodzakelijke administratie is op orde gebracht, zodat de parochie transparant en in overeenstemming met alle staats- en kerkelijke wetten kan opereren.
+* Er is een nieuw kerkelijk bestuur gekozen;
+* Het buitenschrijnwerk is opnieuw geverfd;
+* Er zijn onderzoeken en werkzaamheden uitgevoerd om het fundament van het kerkgebouw te stabiliseren;
+* Het priesterlijk verblijf is gerealiseerd;
+* Er is een parochiale website en sociale media opgezet;
+* Alle noodzakelijke administratie is op orde gebracht, zodat de parochie transparant en in overeenstemming met alle staats- en kerkelijke wetten kan opereren.
 
 Echter, de grootste vreugde en meest significante stap voorwaarts is de komst van een vaste parochiepriester, die in de pastorie van onze kerk zal wonen en regelmatige dagelijkse en zondagse liturgieën zal leiden. We zijn bijzonder verheugd en vereerd dat we, als God het wil, monnik Nikita mogen verwelkomen, een broeder van het klooster van Ostrog, die na zes jaar dienst in Latijns-Amerika naar onze parochie komt.
 
@@ -40,16 +40,16 @@ Vrede van God! Christus is geboren! Waarlijk is Hij geboren!
 
 Priester Krsto Stanisić en leden van het Kerkelijk Bestuur:
 
-•	Dobrivoje Maksimović Bobi
-•	Željko Đukić
-•	Jasmina Šljubora
-•	Tanja Skerlić
-•	Sanja Jovanović
-•	Slobodan Gavrić
-•	Saška Kulić
-•	Gordana Milošević
-•	Spiro Mirčetić
-•	Žarko Maravić
-•	Ljubiša Grahovac
-•	David Pojan
-•	Predrag Berić
+* Dobrivoje Maksimović Bobi
+* Željko Đukić
+* Jasmina Šljubara
+* Tanja Skerlić
+* Sanja Jovanović
+* Slobodan Gavrić
+* Saška Kukić
+* Gordana Milošević
+* Spiro Mirčetić
+* Žarko Maravić
+* Ljubiša Grahovac
+* David Pojan
+* Predrag Berić
